@@ -54,7 +54,7 @@ https://businessmint.org/business-mint-issue-10-2024/
 
 ![Business Mint Under 40 Industry Experts Digital Certificate-1](https://github.com/prathimacode-hub/Professional-Media-Kit/assets/74645302/c5ffdf55-80f5-47f7-96d4-4e1482795bf1)
 
-Under 40 Industry Experts Awards organized by Business Mint, showcasing the innovative achievements reflecting industry professionals with a recognition for influencing in remaking the future of India. It's a digital event and I'm extremely pleased to accept this award for the "Category : Data Science".
+Under 40 Industry Experts Awards organized by Business Mint, showcasing the innovative achievements reflecting industry professionals with a recognition for influencing in remaking the future of India. It's a virtual event and I'm extremely pleased to accept this award for the "Category : Data Science".
 
 
 ### Triumph Of Talent - Women Of Impact
@@ -65,9 +65,11 @@ Under 40 Industry Experts Awards organized by Business Mint, showcasing the inno
   
 ![Triumph Of Talent - Women In Tech Award Poster Reveal](https://github.com/prathimacode-hub/Professional-Media-Kit/assets/74645302/7e788a9f-740b-43ce-9fb4-e2ce35360646)
 
+![WOI Wall OF Impact TOT Full](https://github.com/prathimacode-hub/Professional-Media-Kit/assets/74645302/25ea6bb3-c4e0-4e04-a6ee-0974d69281aa)
+
 ![Wall Of Impact TOT](https://github.com/prathimacode-hub/Professional-Media-Kit/assets/74645302/715d4e95-f61f-42c8-9007-858ab134b9e2)
 
-
+![Wall Of Impact Award](https://github.com/prathimacode-hub/Professional-Media-Kit/assets/74645302/4e67c280-ce26-4d35-a413-d4ceeeebacf2)
 
 I had garnered an award for being a prominent "Women Of Impact in Tech" space organized by Triumph Of Talent at Hyderabad. That's a mesh of emotions altogether to being valued for my contributions in Tech Industry professionally and voluntarily.
 

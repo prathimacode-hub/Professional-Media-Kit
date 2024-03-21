@@ -56,12 +56,22 @@ https://businessmint.org/business-mint-issue-10-2024/
 
 Under 40 Industry Experts Awards organized by Business Mint, showcasing the innovative achievements reflecting industry professionals with a recognition for influencing in remaking the future of India. It's a virtual event and I'm extremely pleased to accept this award for the "Category : Data Science".
 
+This stands as an accomplished testament to the difference I could bring in this data science industry while shaping the products and delivering impactful milestones in my journey.
+
 
 ### Triumph Of Talent - Women Of Impact
 
 ### Official Website Link
 
 - https://totawards.com/
+
+### Women Of Impact Interview Video
+
+- https://drive.google.com/file/d/1OHBCErVAL-uw-oV9gJJeV_mXHfKh1NXu/view?usp=drive_link
+
+### Women Of Impact Receiving Award Video
+
+- https://drive.google.com/file/d/1V-R5xwJGsYikyugCNfYE2jK29GKmQch0/view
   
 ![Triumph Of Talent - Women In Tech Award Poster Reveal](https://github.com/prathimacode-hub/Professional-Media-Kit/assets/74645302/7e788a9f-740b-43ce-9fb4-e2ce35360646)
 

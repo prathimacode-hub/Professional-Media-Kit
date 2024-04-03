@@ -48,7 +48,7 @@
 
 ### Find The Magazine Here... Happy reading! 📖
 
-https://businessmint.org/business-mint-issue-10-2024/
+👉https://businessmint.org/business-mint-issue-10-2024/
 
 ![Business Mint Under 40 Industry Expert Award Reveal](https://github.com/prathimacode-hub/Professional-Media-Kit/assets/74645302/a87bb506-7cde-4a33-90c6-630eec0c5684)
 
@@ -81,6 +81,8 @@ This stands as an accomplished testament to the difference I could bring in this
 
 ![Wall Of Impact Award](https://github.com/prathimacode-hub/Professional-Media-Kit/assets/74645302/4e67c280-ce26-4d35-a413-d4ceeeebacf2)
 
+### Triumph Of Talent Wall Of Impact Event Trailer : https://www.linkedin.com/posts/triumphs-of-talent_womenofimpact2024-totawards-inspire-activity-7173624379275141120-F8zF?-utm_source=share&utm_medium=member_desktop
+
 I had garnered an award for being a prominent "Women Of Impact in Tech" space organized by Triumph Of Talent at Hyderabad. That's a mesh of emotions altogether to being valued for my contributions in Tech Industry professionally and voluntarily.
 
 Triumphs of Talent (ToT) event “Women of Impact Awards 2024” on March 6th in collaboration with “Good Universe”stands as a beacon of recognition, celebrating excellence, innovation, and the relentless pursuit of greatness. This evokes a sense of inspiration and incentive to deliver my best potential work for my future committments.
@@ -100,6 +102,8 @@ Triumphs of Talent (ToT) event “Women of Impact Awards 2024” on March 6th in
 
 ![Internet-2 0_SMP-(Individual-Dubai)-Leader_2024_Prathima Kadari](https://github.com/prathimacode-hub/Professional-Media-Kit/assets/74645302/59b0fc2e-8391-40e2-9561-bca401f3c766)
 
+![Congratulatory Poster Outstanding Leadership Award Internet 2 0 Conference 2024](https://github.com/prathimacode-hub/Professional-Media-Kit/assets/74645302/e26e0945-fb3d-445f-9c69-bff2f1a471a9)
+
 Awarded with the Most Prestigious Title of "Outstanding Leadership" by Internet 2.0 Conference. Drawing an Inspiration from "Pursuit Of Happiness", I always believed in being hopeful and putting myself beyond.
 
 ### Day 2 of Dubai Conference : https://www.youtube.com/watch?v=wLMpAluzJYM
@@ -107,3 +111,24 @@ Awarded with the Most Prestigious Title of "Outstanding Leadership" by Internet 
 It was an honor to receive this award amongst acclaimed leaders while exploring out to all the speakups, panel discussions, fireside chats under an umbrella of innovation coming from transformative fields of Artificial Intelligence, Blockchain, Cybersecurity, Augmented Reality and Agile Process Technologies etc.
 
 Experience Loaded : Completely spellbounded with technical extravaganza I had witnessed at most happening city, Dubai.
+
+
+### BeSpoke Diaries - Featured as S-Hero (Sept 2023)
+
+I got to be featured as a S-Hero in Bespoke Diaries. Glad to be invited for adding a short but an impactful page into this digital book along with amazing dignitaries included.
+
+On the same note, I had included some practical tips to "Funnel Your Challenges Into An Opportunity.
+
+### S-Hero Website Blog : https://www.thebespokediaries.com/post/an-invisible-ladder-funnel-your-challenges-into-an-opportunity-prathima-kadari
+
+### My Glimpse Post : https://www.instagram.com/reel/Cw38RP8Squ0/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==
+
+### My Blog Post : https://www.instagram.com/reel/Cw37wmdSwxK/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==
+
+
+## Connect With Me :
+
+Official Mail - Invites / Collaborations : prathimakadari.work@gmail.com <br>
+Book a 1:1 Slot with Me - Data Science & Personal Branding : https://topmate.io/prathima_kadari <br>
+Schedule a Call (Discussions) - Invites / Collaborations / Professional : https://calendly.com/kadariprathima4/join-me <br>
+Social Media : https://www.linkedin.com/in/prathima-kadari | https://twitter.com/prathima_kadari | https://www.instagram.com/prathima_kadari <br>

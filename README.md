@@ -129,9 +129,11 @@ On the same note, I had included some practical tips to "Funnel Your Challenges 
 
 ### S-Hero Website Blog : https://www.thebespokediaries.com/post/an-invisible-ladder-funnel-your-challenges-into-an-opportunity-prathima-kadari
 
-### My Glimpse Post : https://www.instagram.com/reel/Cw38RP8Squ0/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==
+#### Instagram Posts :
 
-### My Blog Post : https://www.instagram.com/reel/Cw37wmdSwxK/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==
+- https://www.instagram.com/reel/Cw38RP8Squ0/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==
+
+- https://www.instagram.com/reel/Cw37wmdSwxK/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==
 
 
 ## Connect With Me :

@@ -50,6 +50,14 @@
 
 👉https://businessmint.org/business-mint-issue-10-2024/
 
+### Social Media Posts
+
+- https://www.linkedin.com/posts/businessmint_businessmintawards-under40leaders-entrepreneurshipexcellence-activity-7169337065996795904-JPvT?utm_source=share&utm_medium=member_android
+
+- https://www.linkedin.com/posts/businessmint_bmnationwideawards-under40entrepreneurs-industryexperts-activity-7170676874795319296-XB2B/?utm_source=share&utm_medium=member_android
+
+- https://www.instagram.com/p/C4IebIbPeiU/?igsh=OWcyNHptZDRvY3F6
+
 ![Business Mint Under 40 Industry Expert Award Reveal](https://github.com/prathimacode-hub/Professional-Media-Kit/assets/74645302/a87bb506-7cde-4a33-90c6-630eec0c5684)
 
 ![Business Mint Under 40 Industry Experts Digital Certificate-1](https://github.com/prathimacode-hub/Professional-Media-Kit/assets/74645302/c5ffdf55-80f5-47f7-96d4-4e1482795bf1)
